@@ -24,3 +24,4 @@ Repeat it once every six weeks to get meaningful results.
 3 – apple vinegar: mix half a cup of apple vinegar with another one of warm water,
 
 and soak the nails in it for a third of an hour, and then dried it well with a soft towel,  repeat this recipe three times every day  for a month to obtain satisfactory results.
+https://shewanted.com/3-simple-home-recipes-to-treat-yellow-nails/
